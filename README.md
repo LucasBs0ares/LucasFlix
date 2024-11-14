@@ -26,6 +26,8 @@ Motoqueiro Fantasma
 
 sinopse:Um jovem chamado Johnny Blaze aceita vender sua alma para salvar a vida do pai. Anos depois, trabalhando como um famoso dublê e motociclista, ele reencontra seu grande amor, Roxanne, que agora é repórter, e o homem com quem fez o pacto, Mefisto. Ele oferece a Johnny a chance de recuperar sua alma caso o destemido piloto aceite se transformar em um agente sobrenatural movido por vingança e justiça: o Motoqueiro Fantasma.
 
+![](https://media1.tenor.com/m/PEYch8AWIRgAAAAC/ghost-rider.gif)
+
 
 transformers a vingança dos derrotados
 
@@ -44,19 +46,23 @@ círculo de fogo
 
 sinopse:Criaturas monstruosas conhecidas como Kaiju começam a emergir do mar. Para combatê-los, a humanidade desenvolve uma série de robôs gigantescos, os Jaegers. Cada um é controlado por duas pessoas por meio de uma conexão neural. Entretanto, mesmo os Jaegers se mostram insuficientes para derrotar os Kaiju. Diante deste cenário, a última esperança é um velho robô, que passa a ser comandado por um antigo piloto e uma pessoa em treinamento.
 
-
-![](https://media1.tenor.com/m/3fI32ch1TooAAAAd/pacific-rim.gif)
+![](https://media1.tenor.com/m/K9l5kQJ1JkkAAAAC/pacific-rim-uprising-gif-pacific-rim.gif)
 
 todo mundo em Pânico
 
 sinopse:Depois do assassinato de uma bela colega de classe, um grupo de adolescentes desorientados descobre que há um assassino entre eles. A heroína Cindy Campbell e a sua turma de amigos tentam se proteger do perigo, mas Gail Hailstorm, uma repórter irritante, simplesmente não os deixa em paz.
 
-
-![](https://media1.tenor.com/m/C7_gXFFY9jwAAAAd/spooky-scary.gif)
+![](https://media1.tenor.com/m/aCF792iBd6YAAAAd/scary-movie-tongue-out.gif)
 
 O Espetacular Homem-Aranha 2: A Vingança de electro
 
-sinopse 
-
+sinopse:O jovem Peter Parker está fascinado com as habilidades que adquiriu como Homem-Aranha. Agora, ele precisa lidar com dois problemas: o retorno de um velho amigo, Harry Osborn, e a chegada de um vilão mais forte e poderoso, Electro.
 
 ![](https://media1.tenor.com/m/uatIhHZdX70AAAAC/spider-man-tasm2.gif)
+
+Superbad - É Hoje
+
+sinopse:Os adolescentes Seth e Evan têm grandes esperanças para uma festa de formatura. Eles pretendem beber e conquistar as garotas para que eles possam se tornar parte da turma mais popular da escola, mas a ansiedade de separação e dois policiais entediados complicam missão dos amigos.
+
+![](https://media1.tenor.com/m/HNBz2l42FP4AAAAd/mclovin.gif)
+
